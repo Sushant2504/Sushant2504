@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **Ping me on Linkdin**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1qMHX6iYjgUvSFvvY5r4wFpL1_Czo0s-X/view]((https://drive.google.com/file/d/1mma3f5iLOv2P4nxPUmZlmkqd9LRHJzkE/view?usp=sharing))
+- 📄 [📄 Know about my experiences](https://drive.google.com/file/d/1mma3f5iLOv2P4nxPUmZlmkqd9LRHJzkE/view?usp=sharing)
 
 - ⚡ Fun fact **I am good at Sports, Atheletics, BasketBall, Chess, Painting & Drawing**
 
